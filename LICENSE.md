@@ -1,4 +1,4 @@
-# 
+# VIP Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con reverberación y rotoscopia. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
